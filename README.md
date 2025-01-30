@@ -1,1 +1,0 @@
-# latter-day-philosophy
